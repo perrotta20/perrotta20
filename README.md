@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collabogaorate on ...
 - 📫 How to reach me ...need cuijingfei
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... cuijingfei
+- fight Fun fact: ... cuijingfei
 loveff
 <!---
 perrotta20/perrotta20 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
