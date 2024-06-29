@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...cuijingfei
 - 💞️ I’m looking to collabogaorate zhaobudaobiniwenrouon ...
 - 📫 How to reach me ...need cuijingfei
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...nishisuoyou
 - fight Fun fact: ... cuijingfei
 loveffthe best for you ff
 <!---我爱你崔静霏aini520
